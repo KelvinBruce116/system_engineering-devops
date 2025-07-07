@@ -1,1 +1,1 @@
-Shell basics DJJWBJBDWKWGEWEEDDERRE
+First directory
